@@ -1,6 +1,6 @@
-:heart: :point_right: 【地址一】 ：https://qq.com.nyy2020.xyz/
+:heart: :point_right: 【地址一】 ：https://qq.com.tieniu01.xyz
 ------
-:heart: :point_right: 【地址二】 ：	https://nyy.h9w9.com
+:heart: :point_right: 【地址二】 ：https://qq.com.tieniu01.xyz
 ------
 :heart: :point_right: 【邮箱联系方式】 ：tieniu2021@gmail.com
 ------
