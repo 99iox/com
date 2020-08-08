@@ -1,4 +1,4 @@
-:heart: :point_right: 【地址一】 ：https://qq.com.tieniu01.xyz
+:heart: :point_right: 【地址一】 ：https://qq.com.tieniu02.xyz
 ------
 :heart: :point_right: 【地址二】 ：https://qq.com.tieniu01.xyz
 ------
