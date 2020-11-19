@@ -4,7 +4,7 @@
 ------
 :heart: :point_right: 【地址二】 ：https://qq.com.tieniu03.xyz
 ------
-:heart: :point_right: 03跟05账号通用，04独立请注意。
+:heart: :point_right: 04跟05账号通用，03独立请注意。
 ------
 :heart: :point_right: 【邮箱联系方式】 ：tieniu2021@gmail.com
 ------
