@@ -12,7 +12,7 @@
 ------
 :heart: :point_right: 【邮箱联系方式】 ：zaolaotdh@gmail.com
 ------
-:heart: :point_right: 【永久域名】 ：tieniu.tv
+:heart: :point_right: 【永久域名】 ：99iox.com
 ------
 # QQ或者微信点不开以上链接请用手机浏览器打开！
 # :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
