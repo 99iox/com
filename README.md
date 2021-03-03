@@ -1,14 +1,14 @@
-:heart: :point_right: 【地址一】 ：http://qq.com.99iox.xyz/
+:heart: :point_right: 【地址一】 ：http://qq.com.99iox.xyz
 ------
-:heart: :point_right: 【地址二】 ：http://qq.com.99iox1.xyz/
+:heart: :point_right: 【地址二】 ：http://qq.com.99iox1.xyz
 ------
-:heart: :point_right: 【地址三】 ：http://qq.com.99iox2.xyz/
+:heart: :point_right: 【地址三】 ：http://qq.com.99iox2.xyz
 ------
-:heart: :point_right: 【地址四】 ：http://qq.com.99iox3.xyz/
+:heart: :point_right: 【地址四】 ：http://qq.com.99iox3.xyz
 ------
-:heart: :point_right: 【地址五】 ：http://qq.com.99iox4.xyz/
+:heart: :point_right: 【地址五】 ：http://qq.com.99iox4.xyz
 ------
-:heart: :point_right: 【地址六】 ：http://qq.com.99iox5.xyz/
+:heart: :point_right: 【地址六】 ：http://qq.com.99iox5.xyz
 ------
 :heart: :point_right: 【邮箱联系方式】 ：zaolaotdh@gmail.com
 ------
